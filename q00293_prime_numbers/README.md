@@ -1,0 +1,1 @@
+# [اعداد اول](https://quera.org/problemset/293)
