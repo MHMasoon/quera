@@ -1,0 +1,1 @@
+# [یک سوال ساده](https://quera.org/problemset/2885)

@@ -1,0 +1,1 @@
+# [مشق امشب باقر](https://quera.org/problemset/10230)

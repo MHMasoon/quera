@@ -1,0 +1,1 @@
+# [اعداد فیثاغورثی](https://quera.org/problemset/280)

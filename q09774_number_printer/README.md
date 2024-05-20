@@ -1,0 +1,1 @@
+# [عدد چاپ‌کن](https://quera.org/problemset/9774)

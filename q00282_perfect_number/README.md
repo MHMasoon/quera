@@ -1,0 +1,1 @@
+# [کامل بودن یا نبودن](https://quera.org/problemset/282)

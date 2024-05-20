@@ -1,0 +1,1 @@
+# [تاریخ تولد](https://quera.org/problemset/615)
